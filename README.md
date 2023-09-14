@@ -4,7 +4,7 @@ Here (in the near future), you'll find projects I've worked on.
 
 - 👯 I'm always open to new ideas and collaboration, so don't hesitate to reach out if you have any ideas or questions about my work.
 
-### contact me ✍️ 
+### Сontact me ✍️ 
 
 - Email: olya.zarichna@gmail.com
 - LinkedIn: https://www.linkedin.com/in/olya-zarichna/
